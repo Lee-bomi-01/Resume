@@ -1,3 +1,3 @@
-# Hi! I am Lee bomi. 
+# Hi!I am Lee bomi (: 
 ---
 
