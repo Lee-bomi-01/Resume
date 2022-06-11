@@ -1,2 +1,3 @@
-# Resume
-개인 이력사항
+# Hi! I am Lee bomi. 
+---
+
